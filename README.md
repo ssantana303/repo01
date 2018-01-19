@@ -15,3 +15,6 @@ I’m the tallest girl in my seventh-grade class. No. Correct that. I’m the ta
 I’m also the biggest klutz who ever stumbled over the face of the earth. I mean, just because I’m tall and slender doesn’t mean I have to be graceful. And believe me, I’m not.
 But why is it such a riot when I stumble over a wastebasket or drop my tray in the lunchroom or trip over someone’s foot in math class?
 Judith and Anna are just cruel, that’s all.
+
+
+Some more edits to line 20
